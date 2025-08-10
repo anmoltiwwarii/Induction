@@ -257,7 +257,7 @@ Relax, eat, and network with peers.
 ---
 
 ### 🕜 **1:30 PM – 2:30 PM | Applied Chemistry Insights**  
-**📍 Venue:** Room No. F-109 
+**📍 Venue:** Room No. F-109      
 **👨‍🏫 Speaker:** *Prof. Karan Bhalla*
 Chemistry concepts linked to engineering applications.
 
