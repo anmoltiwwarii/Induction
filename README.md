@@ -104,6 +104,47 @@ The **Chemistry session** particularly impressed me — real-world applications 
 - **STEM problem-solving** — helped me see problems as opportunities.
 - Institutional insights from Dr. Lakhvir Singh Khana closed the induction program.
 
+## 🏫 **B.Tech Induction – Day 7 (August 7, 2025)**  
+
+The seventh day of the B.Tech Orientation Program at **Guru Nanak Dev Engineering College, Ludhiana**, continued to strengthen the bridge between newcomers and the vibrant academic environment of the campus. The schedule was thoughtfully planned with sessions that provided both institutional guidance and personal development insights.  
+
+---
+
+### 🕘 **09:30 AM – 10:30 AM**  
+**📍 Venue:** Main Auditorium  
+**👨‍🏫 Resource Person:** *Dr. Amrit Kamra* – Incharge, Departmental Monitoring Committee (DMC)  
+
+The morning commenced with a highly informative address by **Dr. Amrit Kamra**, shedding light on the crucial role of the **DMC** in ensuring academic excellence and discipline.  
+Students learned about the committee’s role in mentoring, addressing academic challenges, and ensuring every learner receives the support they need throughout their engineering journey.  
+
+---
+
+### 🕥 **10:30 AM – 11:30 AM**  
+**📍 Venue:** Main Auditorium  
+**👨‍🏫 Resource Person:** *Dr. Parminder Singh* – Dean, Student Welfare  
+
+This session focused on the **student welfare ecosystem** within the college.  
+Dr. Parminder Singh explained the various support facilities, welfare programs, and student-led initiatives that enrich campus life.  
+He encouraged active participation in **clubs, cultural events, and technical societies** as a way to sharpen leadership skills, develop hobbies, and create lasting memories.  
+
+---
+
+### 🕦 **11:30 AM – 12:30 PM**  
+**📍 Venue:** Main Auditorium  
+**👨‍🏫 Resource Person:** *Dr. Randhir Singh*  
+**🎯 Topic:** *"Examination Guidelines & Protocol"*  
+
+In this lecture, Dr. Randhir Singh broke down the **examination framework** at GNDEC.  
+From internal assessments to grading methodology, he covered all essential details students must know to navigate their academic evaluations.  
+The emphasis was on maintaining fairness, transparency, and integrity in all academic assessments.  
+
+---
+
+### 🕧 **12:30 PM – 1:30 PM**  
+**🍱 Lunch Break**  
+
+A well-deserved pause allowed students to recharge, enjoy lunch, and network informally with peers before moving into the afternoon agenda.
+
 ---
 
 ## 🛠 Skills Learned
